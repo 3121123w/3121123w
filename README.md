@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @3121123w
+- 👀 I’m interested in codding with Hava and creating 3d models
+- 🌱 I’m currently learning gow tl wirk with Maya
+- 📫 How to reach me message me and I answer you
+- ⚡ Fun fact: I'm really good at music and sports and I want to become the same in programming
